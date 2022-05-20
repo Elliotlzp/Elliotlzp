@@ -1,0 +1,5 @@
+- Hi, I’m @Elliotlzp
+- (call me Elliot)
+- I’m interested in: programming (and computers in general), video games,
+- I’m currently learning programming (python specifically because I am new to programming).
+- If you want to reach me my discord is: Elliot#2262.
